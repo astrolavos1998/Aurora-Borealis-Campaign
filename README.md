@@ -1,4 +1,4 @@
-# Aurora-Borealis-Campaign
+# Aurora Borealis Campaign
 This campaign is only for the A-4E-C mod of DCS World and concerns a series of 11 missions on the Kola map.
 This is a fictional large-scale attack by the Warsaw Pact against NATO with the aim of conquering the Scandinavian peninsula.
 We are in 1961, during the "Cold War".
