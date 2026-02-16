@@ -22,4 +22,4 @@ DISCLAIMER:
 
 
 
-                                                     | || |||   Aurora Borealis 2025 for LOCK-ON GREECE by =GR= Astr0   ||| || |
+                        | || |||   Aurora Borealis 2025 for LOCK-ON GREECE by =GR= Astr0   ||| || |
